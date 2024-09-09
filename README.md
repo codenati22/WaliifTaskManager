@@ -27,6 +27,8 @@ Images:
    
 ![photo_2024-09-09_16-04-1![photo_2024-09-09_16-04-24](https://github.com/user-attachments/assets/4d52a9af-d1b0-4bb9-ba35-5492583db30e)
 7](https://github.com/user-attachments/assets/ec7f8330-a33b-4f4a-9071-6289c051f819)
+![photo_2024-09-09_16-04-17](https://github.com/user-attachments/assets/e41fe197-50a3-4f8d-8285-bdba9d493974)
+![photo_2024-09-09_16-04-24](https://github.com/user-attachments/assets/d19fd23c-e38d-4939-9d73-fa9af367c67d)
 ![photo_2024-09-09_16-04-25](https://github.com/user-attachments/assets/13122c91-4366-4a0a-9c45-7aab3ed95fe7)
 ![photo_2024-09-09_16-04-32](https://github.com/user-attachments/assets/a1c6dff4-8cce-4a33-85c9-19bacb8c8bca)
 ![photo_2024-09-09_16-04-34](https://github.com/user-attachments/assets/db7d7d7a-c7c5-4b82-b0f5-f394ed79e2f1)
