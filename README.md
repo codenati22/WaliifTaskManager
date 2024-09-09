@@ -25,7 +25,6 @@ i added all features:
 
 Images:
    
-![photo_2024-09-09_16-04-1![photo_2024-09-09_16-04-24](https://github.com/user-attachments/assets/4d52a9af-d1b0-4bb9-ba35-5492583db30e)
 ![photo_2024-09-09_16-04-17](https://github.com/user-attachments/assets/e41fe197-50a3-4f8d-8285-bdba9d493974)
 ![photo_2024-09-09_16-04-24](https://github.com/user-attachments/assets/d19fd23c-e38d-4939-9d73-fa9af367c67d)
 ![photo_2024-09-09_16-04-25](https://github.com/user-attachments/assets/13122c91-4366-4a0a-9c45-7aab3ed95fe7)
